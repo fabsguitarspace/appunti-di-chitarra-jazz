@@ -1,0 +1,2 @@
+# Tecnica della mano destra
+
